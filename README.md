@@ -1,0 +1,2 @@
+# edugorilla.com
+Acting as an exemplar in digital learning, EduGorilla has set a milestone with a strong database of 1250+ exams, 2 crores+ users, 39890+ tests, and counting. With its outstanding endeavors in online learning, EduGorilla has completely transformed the educational landscape of India. It is a team of eminent experts who are highly concentrated to make learning more interesting and enjoyable. EduGorilla is one of the fastest-growing educational organizations in India and it can be seen clearly as to how it is attracting investors to add to its capital.
